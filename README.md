@@ -10,3 +10,10 @@
 Gojoking55172/Gojoking55172 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+# ALPHA-MC
+ FULL SETUP VIDEO UPLOADING SOON 
+# DISCORD 
+ https://discord.gg/eryxcafe 
+  
+# PAST TIME HE IS ALPHA STUDIO 
